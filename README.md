@@ -1,1 +1,1 @@
-oki so basically, i'm very smol
+what u wanna fight
